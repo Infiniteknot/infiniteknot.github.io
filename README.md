@@ -1,1 +1,1 @@
-# infinieknot.github.io
+# infiniteknot.github.io
